@@ -1,0 +1,1 @@
+# hand2hand-assets
